@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on vrising stuffs
 - 📫 How to reach me discord probs
 - 😄 Pronouns: They
-- ⚡ Fun fact: beans
+- ⚡ Fun fact: beans are a magical fruit
 
 <!---
 NihilGhoul/NihilGhoul is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
